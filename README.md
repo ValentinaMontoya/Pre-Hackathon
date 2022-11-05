@@ -1,3 +1,3 @@
 # pre-hackathon
 
-# Que pasasa profe todo nice?
+# ¿Qué pasasa todo nice?
